@@ -1,4 +1,6 @@
 # ‣ AmongUsCrack
+## ‣ DOWNLOAD : https://www.mediafire.com/file/ryrlsfh5k06n29z/Among_Us.zip/file
+## ‣ HOW TO DOWNLOAD :
 ## AmongUs Crack is a Crack of a older version among us which is working and has been tested but this project has been discontinued and has no support for the latest version.
 ## ∙ INFORMATION ⁃
 ### • This is a Crack for itch.io which is the only version of among us which can be cracked.
